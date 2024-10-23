@@ -3,4 +3,4 @@
 - Estamos trabalhando com projetos de **JavaScript** e **HTML**;
 - Para dúvidas ou perguntas, entre em contato _00001124975329sp@al.educacao.sp.gov.br_📩
 
-![](https://media.tenor.com/PXupL3bOuSAAAAAM/gojo-satoru-hottie.gif)
+![](https://media1.tenor.com/m/oHws3K2bKe0AAAAd/blue-lock-nagi-seishiro-blue-lock.gif)
