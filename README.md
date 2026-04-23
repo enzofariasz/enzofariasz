@@ -5,4 +5,4 @@
 
 ![](https://media1.tenor.com/m/oHws3K2bKe0AAAAd/blue-lock-nagi-seishiro-blue-lock.gif)
 
-**Título: Precarização do Trabalho Juvenil no Brasil e Perspectivas de Futuro**
+
