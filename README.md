@@ -16,3 +16,17 @@ Como segundo desenvolvimento deste texto, é necessário, além dos programas ed
 Por último, é preciso sublinhar que, ao defendermos que o caminho principal para combater a violência contra a mulher passa pela educação, não se está diminuindo ou esquecendo da importância da punição quando necessária; o intuito é reforçar que sempre se deve antecipar o problema com medidas educativas, ao invés de apenas reagir ao problema após a consumação de uma agressão.
 
 Em suma, para combater eficazmente a violência contra a mulher é necessário, entre outras medidas, o desenvolvimento de ações educativas com vistas a construir, progressivamente, o conhecimento necessário a transformações culturais profundas eDuradouras, que eliminarão aos poucosa nossa atual mentalidade social machista. Através dessas transformações,poderemos criar unfuturo seguro e igualitáriopara todas as pessoas.
+
+O Ministério da Educação (MEC), em parceria com o Ministério das Mulheres, lançou em março de 2026 um pacote de ações focadas na prevenção à violência contra meninas e mulheres no ambiente escolar e acadêmico. As medidas incluem a inclusão de conteúdos sobre igualdade e prevenção à violência na educação básica, além de um protocolo nacional de acolhimento e enfrentamento nas universidades e institutos federais. 
+www.gov.br
+www.gov.br
+ +3
+Ações Principais de Prevenção (MEC):
+Educação Básica: Currículos escolares incluirão, desde cedo, temas sobre o enfrentamento à violência de gênero.
+Ensino Superior e Rede Federal: Criação de núcleos de acolhimento e protocolos contra assédio, violência e discriminação.
+Programa Mulheres Mil: Ampliação de vagas para formação profissional e tecnológica de mulheres em situação de vulnerabilidade.
+Lei 14.164/21: Institui a Semana Escolar de Combate à Violência contra a Mulher em março. 
+www.gov.br
+www.gov.br
+ +4
+Essas ações visam a educação para a igualdade e o desenvolvimento de mecanismos institucionais de segurança e responsabilização de agressores.
